@@ -1,3 +1,3 @@
-# JessicaSmits.github.io
+# JessicaSmits
 
 ## Let's try this shit!
